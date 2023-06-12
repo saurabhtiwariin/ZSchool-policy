@@ -36,4 +36,4 @@ If you have any questions, concerns, or requests regarding this Privacy Policy o
 
 By using ZSchool, you consent to the collection, use, and disclosure of your personal information as described in this Privacy Policy.
 
-**Last Updated:** [Date]
+**Last Updated:** [12/06/2023]
